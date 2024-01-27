@@ -9,7 +9,7 @@
       
 - 💞️ I’m looking to collaborate on any project that can improve my programming stacks.
    - Actually, since studying back-end, I couldn't have opportunity to test how I'm improved or just didn't try to find but, if any opportunitis I can catch
-      I gradly touch it!
+      I gladly take it!
       
 - 📫 How to reach me
    - email : ikwonsh303@gmail.com (everyday I check my email so feel free to talk)
